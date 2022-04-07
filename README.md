@@ -9,4 +9,3 @@ WHERE YOU CAN REACH ME
 ===============================
 * Telegram: Rusted_Files
 * Discord: S.K#6952
-===============================
